@@ -1,1 +1,0 @@
-# muhammedabdullahtopcu.github.io
